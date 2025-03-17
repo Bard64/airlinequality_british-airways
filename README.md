@@ -5,12 +5,15 @@ task1
 
 ![image](https://github.com/user-attachments/assets/f721c482-c5b3-4d61-bbd2-3bb4215f35f5)
 
+PDF:[Presentation Template - Task 2.pptx](https://github.com/user-attachments/files/19283346/Presentation.Template.-.Task.2.pptx)
+
 
 
 task2
 
 ![image](https://github.com/user-attachments/assets/34adc11f-c988-4aef-94d0-722e62847ed7)
 
+PDF: [Presentation Template - Task 2.pptx](https://github.com/user-attachments/files/19283313/Presentation.Template.-.Task.2.pptx)
 
 
 certificate
